@@ -37,5 +37,5 @@ _(After pinning — see Phase 3)_
 
 ### 📫 Contact
 
-- **LinkedIn:** [Mostafa Anwar](https://linkedin.com/in/mostafaanwareng)  
+- **LinkedIn:** [Mostafa Anwar](www.linkedin.com/in/mostafa-anwarr)  
 - **Email:** mostafaanwar769@gmail.com
